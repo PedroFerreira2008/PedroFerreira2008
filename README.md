@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @PedroFerreira2008
+- 👋 Hi, I’m @PedroFerreira2008 1taia
 - 👀 I’m interested in childish gambino
 - 🌱 I’m currently learning content from school
 - 💞️ I’m looking to collaborate on many games
