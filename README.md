@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @PedroFerreira2008 1taia
-- 👀 I’m interested in childish gambino
+- 👀 I’m interested in music
 - 🌱 I’m currently learning content from school
 - 💞️ I’m looking to collaborate on many games
 - 📫 How to reach me? don´t reach me
